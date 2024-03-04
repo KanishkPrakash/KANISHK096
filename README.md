@@ -7,7 +7,7 @@
 
 - ⚡ Fun fact **Im bit lazy which do works in small interval of time**
 
-- 📖REDING NON FICTION BOOKS & GAMING 🎮
+- 📖READING NON FICTION BOOKS & GAMING 🎮
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=kanishkprakash&label=Profile%20views&color=0e75b6&style=flat" alt="kanishkprakash" /> </p>
 
