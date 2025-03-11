@@ -9,7 +9,6 @@
 
 - 📖READING NON FICTION BOOKS & GAMING 🎮
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=kanishkprakash&label=Profile%20views&color=0e75b6&style=flat" alt="kanishkprakash" /> </p>
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=kanishkprakash" alt="kanishkprakash" /></a> </p>
 <h3 align="left">Connect with me:</h3>
